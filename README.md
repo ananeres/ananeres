@@ -1,4 +1,3 @@
-# Olá :wave:
 ## Bem-vindo(a) ao meu perfil 🌷
 
 Me chamo Ana Patrícia e sou formada em Fisioterapia pela UNINASSAU, tenho uma pós-graduação em Traumato-Ortopedia e outra em Dermatofuncional. Estou em transição de carreira para o mundo da tecnologia desde 2023.
